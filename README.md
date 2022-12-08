@@ -1,4 +1,4 @@
-<img height="300" width="10000" src="https://thumbs.gfycat.com/DelayedEmotionalAustrianpinscher-size_restricted.gif">
+<img height="250" width="10000" src="https://thumbs.gfycat.com/DelayedEmotionalAustrianpinscher-size_restricted.gif">
 <h1 align="center">Hi 👋, I'm Sakshi Jagtap</h1>
 <h3 align="center">A passionate Software Engineer from India</h3>
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/53329034/123502306-0fcdfc80-d669-11eb-87e4-d24cccfbbd00.gif">
